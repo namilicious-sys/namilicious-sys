@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @namilicious-sys
 - 👀 I’m interested in art music video games and programming
 - 🌱 I’m currently learning programming
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me @jiyey_cel on ig
+- 💞️ I’m looking to collaborate as a game developer
+- 📫 How to reach me @sleepyhanami on discord
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: took bscs when i dont know much in coding
 
